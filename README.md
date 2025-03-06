@@ -4,6 +4,8 @@
 
 ## Introduction to Brawl Stars Gems
 
+https://github.com/Songlap99/Gihud
+
 Brawl Stars has become a global sensation, attracting millions of players who are eager to unlock new characters, skins, and other in-game items. Gems, the premium currency in Brawl Stars, are essential for enhancing the gameplay experience. However, purchasing gems with real money may not always be ideal for everyone. In this article, we’ll explore various ways to get **Brawl Stars gems for free in 2025**. 
 
 ## Why You Need Gems in Brawl Stars
