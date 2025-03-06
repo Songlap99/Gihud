@@ -1,6 +1,6 @@
-_Created with [AIPRM Prompt "Yoast SEO Optimized Content Writer"]([https://www.aiprm.com/prompts/copywriting/writing/1785987336174305280/](https://bbestoffers.com/brawl-stars/)_
+_Created with [AIPRM Prompt "Yoast SEO Optimized Content Writer"](https://bbestoffers.com/brawl-stars/)_
 
-*****❤️❤️❤️ Would you like to support me so that I could create more free prompts? - [Buy me a coffee](  [ https://www.buymeacoffee.com/asktojk ](https://bbestoffers.com/brawl-stars/) ❤️❤️❤️*****
+*****❤️❤️❤️ Would you like to support me so that I could create more free prompts? - [Buy me a coffee](https://bbestoffers.com/brawl-stars/) ❤️❤️❤️*****
 
 # How to Get Free Brawl Stars Gems in 2025: Tips and Tricks
 
